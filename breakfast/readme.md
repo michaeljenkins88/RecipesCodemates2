@@ -1,11 +1,11 @@
 # Replace with recipe name
 
-## Servings: 
+## Servings: 5 servings 
 
 ## Time to prepare: 
 
 ## Ingredients:
-
+Bread, butter
 
 ## Equipment needed:
 
