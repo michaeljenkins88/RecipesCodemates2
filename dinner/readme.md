@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Chicken Fried Rice
 
-## Servings: 
+## Servings: 5 Servings
 
 ## Time to prepare: 
 
