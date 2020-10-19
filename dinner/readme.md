@@ -4,7 +4,7 @@
 
 ## Time to prepare: 
 
-## Ingredients:
+## Ingredients: 5 cups of rice
 
 
 ## Equipment needed:
