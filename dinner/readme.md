@@ -4,7 +4,7 @@
 
 ## Time to prepare: 
 
-## Ingredients:
+## Ingredients: Chicken, rice
 
 
 ## Equipment needed:
