@@ -1,16 +1,16 @@
 # pizza
 
-## Servings: 
+## Servings: 6 slices
 
-## Time to prepare: 
+## Time to prepare: 30 minutes
 
-## Ingredients:
-
-
-## Equipment needed:
+## Ingredients: anything
 
 
-## Steps for preparation:
+## Equipment needed: a doordash app
+
+
+## Steps for preparation: choose your pizza and here it goes
 
 
 
